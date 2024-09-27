@@ -52,4 +52,4 @@ Feel free to reach out to me for collaboration or inquiries! 💌
 
 ---
 
-Built with ❤️ by [Your Name]
+Built with ❤️ by Valeriy Manuilyk
